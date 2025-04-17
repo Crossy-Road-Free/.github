@@ -8,6 +8,8 @@
 
 The **Unblocked version** lets you enjoy the full game **online without restrictions** – perfect for playing at school, work, or anywhere internet filters exist.
 
+## <a href="https://izigames.net/crossy-road-5/">👉 Click To Play Crossy Road Unblocked 👈</a>
+
 ---
 
 ## 🚀 Why Crossy Road is an Epic Hit
